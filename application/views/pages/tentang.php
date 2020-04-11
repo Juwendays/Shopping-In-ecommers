@@ -1,0 +1,12 @@
+<h2>Tentang Shopping-IN</h2>
+<p>Shopping-In merupakan perusahaan teknologi Indonesia dengan misi mencapai pemerataan ekonomi secara digital[3]. Sejak didirikan pada tahun 2009, Shopping-In telah bertransformasi menjadi sebuah unicorn yang berpengaruh tidak hanya di Indonesia tetapi juga di Asia Tenggara.</p>
+
+<p>Shopping-In memiliki bisnis marketplace terdepan di Indonesia yang memungkinkan setiap individu, toko kecil, dan brand untuk membuka dan mengelola toko daring. Hingga saat ini, Shopping-In menjadi marketplace yang paling banyak dikunjungi oleh masyarakat Indonesia.[5] Sejak diluncurkan, layanan dasar Shopping-In dapat digunakan oleh semua orang secara gratis.</p>
+
+<p>Dengan visi "Membangun sebuah ekosistem dimana siapa pun bisa memulai dan menemukan apapun "[3], Shopping-In telah memberdayakan jutaan pedagang dan konsumen untuk berpartisipasi dalam masa depan perekonomian. Shopping-In secara konsisten mendukung para pelaku Usaha Mikro Kecil dan Menengah (UMKM) dan perorangan untuk mengembangkan usaha mereka dengan memasarkan produk secara daring.</p>
+
+<p>Usaha ini juga terlihat dari berbagai program yang dibuat maupun diinisiasi oleh Shopping-in dengan bekerjasama dengan Pemerintah dan pihak-pihak lainnya. Salah satu program kolaborasi yang diinisasi oleh Shopping-In adalah acara tahunan MAKERFEST yang diadakan sejak bulan Maret 2018.[7] Acara yang diselenggarakan di berbagai kota di Indonesia ini merupakan panggung perayaan kreasi lokal yang bertujuan untuk mendorong pertumbuhan industri kreatif dalam negeri.</p>
+
+<p>Sejak awal tahun 2019, Shopping-In juga menghadirkan Shopping-In Center.[8] Experience center ini telah diluncurkan di beberapa kota di Indonesia, dua diantaranya adalah Boyolali dan Padang. Melalui Shopping-In Center, pengunjung dapat melakukan transaksi secara online-to-offline (O2O), membayar tagihan, membeli tiket, mendapatkan informasi mengenai cara menggunakan aplikasi Shopping-In, belanja secara interaktif, sampai mencari inspirasi untuk memulai usaha daring secara gratis.</p>
+
+<p>Shopping-in memudahkan seluruh masyarakat Indonesia dari Sabang sampai Merauke untuk mendapatkan kebutuhan mereka. Selain berperan sebagai marketplace pertama yang menerapkan sistem escrow atau rekening bersama di Indonesia, Hal ini memungkinkan konsumen untuk mendapatkan barang dengan cepat.</p>
